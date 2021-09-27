@@ -7,4 +7,4 @@
 <!---
 open-obox/open-obox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+--->The OBS sale events are unique as they offer tiered bonuses which include not only an increasing token price but also lifetime discounts, a commitment from us to support our tokens liquidity and future value, as well as access to future pre-pre-Token sale events.
